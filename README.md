@@ -133,4 +133,4 @@ I am Harshit Verma from [Delhi, India](https://www.google.com/maps/place/Delhi/@
 
 ### Contact Me
 
-If You want to see My Projects and Testimonials or Just **Hire Me** Just Mail Me at [738vermaharshit@gmail.com](mailto:738vermaharshit@gmail.com) and If You want to Hire Me Directly just Fill this [Form](https://form.jotform.com/211442733199053/@blank).
+If You want to see My Projects and Testimonials or Just **Hire Me** Just Mail Me at [738vermaharshit@gmail.com](mailto:738vermaharshit@gmail.com) and If You want to Hire Me Directly just Fill this [Form](https://form.jotform.com/211442733199053/).
